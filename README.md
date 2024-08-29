@@ -10,6 +10,8 @@ hey! here's me starting a python learning journey. I have been studying swe & me
 - listen to music that makes me happy
 - eat rice (or panmee)
 
+<br> 
+
 > be a generalist but not an octopus, focus one thing at a time. ⸻ 🐙
 
 <br> 
